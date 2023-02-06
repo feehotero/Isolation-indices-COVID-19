@@ -1,0 +1,1 @@
+# Isolation-indices-COVID-19
